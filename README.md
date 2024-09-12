@@ -10,6 +10,5 @@ Meu nome é Maria Eduarda
 
 me6770601@gmail.com
 
-@oliveiraa_duh
 
 ![](https://github.com/user-attachments/assets/1d315654-99e1-4e24-ba38-15df2412c844)
